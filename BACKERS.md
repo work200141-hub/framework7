@@ -495,6 +495,9 @@ Support Framework7 development by [pledging on Patreon](https://www.patreon.com/
 
 [Currently vacant. It could be you!](https://www.patreon.com/bePatron?patAmt=1000.0&exp=1&u=4109762&rid=830901)
 
+### \$Buy YouTube Subscribers
+
+[Buy YouTube Subscribers](https://mitwix.com/store/buy-youtube-subscribers)
 ---
 
 ### \$500 Platinum Sponsor
